@@ -44,6 +44,6 @@
 如果你是日本AV影片的爱好者，选择免费日本AV是你不错的选择。我们提供最全、最新的高清影片资源，绝对满足你对画质、内容和体验的所有要求。每天都能带给你新的惊喜，绝不让你失望。
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtn2611/4444444 ）</span>
 
 
